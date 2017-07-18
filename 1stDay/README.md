@@ -1,0 +1,1 @@
+Today was a bit overwhelming. Then I had lunch next door and something about all that filthy grease managed to ease the anxiety
